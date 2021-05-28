@@ -4,4 +4,4 @@
   
   - not learning any languages rn but planning on revisiting CSS
   
-  - reach me at free market liker#8853 on discord
+  - reach me at lolbertbread#8853 on discord
